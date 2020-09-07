@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything you find relevant will answer most logically with best of my knowledge.
 - 📫 How to reach me: dharmeshprataps@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Beginners try to save the queen but professional only save the king (PS. Taling about Chess).
+- ⚡ Fun fact: Beginners try to save the queen but professional only save the king (PS. Talking about Chess).
 
